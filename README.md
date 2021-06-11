@@ -1,2 +1,2 @@
 # csgo
-come hvh poor nigga. femboys always win
+come hvh. femboys always win
